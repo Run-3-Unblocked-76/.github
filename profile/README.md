@@ -4,12 +4,9 @@
 
 In the vast world of online gaming, few titles capture the spirit of endless fun and challenge quite like **Run 3**. This unblocked game has gained a dedicated following, drawing players from various age groups with its simple mechanics, captivating graphics, and the thrill of exploration. Whether you’re a casual gamer or a seasoned pro, Run 3 offers an engaging experience that keeps you coming back for more.
 
-https://3run.blog
+<a href="https://retro2.blog" target="_blank">play run3</a>
 
-https://biologylesson.online
-
-https://lesson1.guru
-
+<a href="https://3run.blog" target="_blank"> play run 3</a>
 
 
 
